@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @errahmanaltitok
+- 👋 Merhaba ben @errahmanaltitok
 - 👀 Frontedn ile ilgileniyorum.
 - 🌱 info@errahmanaltitok.com dan veya errahmanaltitok@gmail.com dan bana ulaşabilirsin.
   
